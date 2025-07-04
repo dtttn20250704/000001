@@ -60,4 +60,4 @@ FreeAVHub：专注中文字幕影片，分类细致（如剧情、素人），�
 无论您想探索经典日本AV还是最新热门影片，以上网站都能满足您的需求。点击链接，体验高清、无码、中文字幕的免费资源，享受无缝观影乐趣！
 
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/dtttn20250704/000001）</span>
